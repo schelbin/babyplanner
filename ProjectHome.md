@@ -1,0 +1,1 @@
+The number of breast-feeding a baby, toilet activity, temperature records and stores information about the status of a child and grew to be helpful to medical records and to provide useful information.
